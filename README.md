@@ -1,2 +1,0 @@
-# new-job
-practiceing purpues
